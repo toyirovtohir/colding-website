@@ -1,1 +1,0 @@
-# colding-website
